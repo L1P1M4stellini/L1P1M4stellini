@@ -1,1 +1,1 @@
-![Gif](https://media1.tenor.com/m/Jz5HT2vyHzEAAAAd/arabic.gif)
+![Gif](https://tenor.com/pt-BR/view/arabic-gif-25588679)
