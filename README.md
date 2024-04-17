@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="25588679" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/arabic-gif-25588679">Arabic GIF</a>from <a href="https://tenor.com/search/arabic-gifs">Arabic GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![Gif](https://media1.tenor.com/m/Jz5HT2vyHzEAAAAd/arabic.gif)
